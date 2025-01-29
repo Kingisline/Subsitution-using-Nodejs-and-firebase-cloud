@@ -13,3 +13,7 @@
 ![Image](https://github.com/user-attachments/assets/d26b45a0-1253-4444-9ef2-80da19a1b9f8)
 
 ![Image](https://github.com/user-attachments/assets/f74f1daa-0b7e-40e6-b4cb-4ae770a6b029)
+
+## Social Media
+
+[Instagram](https://www.instagram.com/ppl_call_me_as_bad_capton?igsh=NG1tYmpsYW5jcWY=)
